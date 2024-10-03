@@ -141,4 +141,6 @@ UVM Coverage Report
         andANdANDORandOrANDnOTgATEForButOneDayyESOKFineFinebUTOKnoImeanokOHHYayaSeeOrThisWowMusicIKnowUknowitThatsASeacretSeeButForWhoNoReasonMeaningLessSomeGlitchToFilterForWhoSeemslIkeMoreandMOreORmOREfORwHO..Some N-1UniversesTooMuch
 
         sEEMSlIKETooMuchPointTOOgREADYPointback2fUTUREOVERandOverAgain.
+        ConnectedOnesAreOnAddictionOrWantOrRotateTheUniversesOrItsLoopOfMeAlongUnseenOrNothingUTimeControleLoopMySelfButIcLICKcALCULATORrAdomLoops
+        ItLikeManyManyTimeIamCommingFromFutureToThisIknowUnseenSeethroughButSooMuchZOOMZOOMZoomBackToFuture...
         
