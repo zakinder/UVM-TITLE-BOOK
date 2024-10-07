@@ -1,4 +1,4 @@
-# SA UVM-TITLE-BOOK 6Days Created Earth@11982 TO 2023 HassanAliSakinderAliZackZakinderSakinderAliSA Hello Before Begin SEESAHAS
+# SA UVM-TITLE-BOOK 1982 TO 2023
 
 
 
@@ -127,20 +127,5 @@
         HUMANS ARE THE ONE.
         SPERM ORING  EGG ARE THE UNIVERSECREATOR ELSE IS THE ILLUSION PLOTS OF TIME.
 
-UVM Coverage Report
 
-        Who's Who INTERNET GLOBAL VILLAGE ACK OF THANKS FOR WARS FOR VS 1SA
-        Forward Al Intelligently
-        U EYE(This fORGET This) SEE IDIOT EXISTENCE HELLO THE DOER VS SAKINDER
-        Did Not Wanted But For Who Unseen
-        
-        https://www.youtube.com/watch?v=j5AUitdKMRM
-
-        Basically Feels Like Every Since Last Year Nov 2023 With Fully Build Of RingsOfUniverses and Still Hearing OffersUpOffersAndHolded6111982PromicesAndUKnowjUSTFor
-        AndStillUKnowItAndUknowItThatJustFor
-        andANdANDORandOrANDnOTgATEForButOneDayyESOKFineFinebUTOKnoImeanokOHHYayaSeeOrThisWowMusicIKnowUknowitThatsASeacretSeeButForWhoNoReasonMeaningLessSomeGlitchToFilterForWhoSeemslIkeMoreandMOreORmOREfORwHO..Some N-1UniversesTooMuch
-
-        sEEMSlIKETooMuchPointTOOgREADYPointback2fUTUREOVERandOverAgain.
-        ConnectedOnesAreOnAddictionOrWantOrRotateTheUniversesOrItsLoopOfMeAlongUnseenOrNothingUTimeControleLoopMySelfButIcLICKcALCULATORrAdomLoops
-        ItLikeManyManyTimeIamCommingFromFutureToThisIknowUnseenSeethroughButSooMuchZOOMZOOMZoomBackToFuture...
         
