@@ -127,5 +127,7 @@
         HUMANS ARE THE ONE.
         SPERM ORING  EGG ARE THE UNIVERSECREATOR ELSE IS THE ILLUSION PLOTS OF TIME.
 
+UVM Scoreboard
 
+        O is undefined in math due to the fact 0 before 1 has no concept and such 0 from humans create problems for others. Begin Mean 1 and means forward.DriveCarForWard
         
