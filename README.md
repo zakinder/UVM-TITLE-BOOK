@@ -133,5 +133,4 @@ UVM Scoreboard
 
 UVM Coverage
 
-        Legend of Ten Rings Validated
-        Lord Keys
+        ForcesOfUnseenTriedManyTriesToDelete "SA UVM-TITLE-BOOK 1982 TO 2023"
