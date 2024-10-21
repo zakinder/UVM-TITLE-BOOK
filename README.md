@@ -4,8 +4,8 @@
 
 
         LOSERS VS SAKINDER ALI
-        SILIENT MOTOR TALK VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
-        BRAIN VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
+        SILIENT MOTOR TALK VS SAKINDER ALI
+        BRAIN VS SAKINDER ALI
         VIRTUAL EAR TALK VIA SILIENT MOTOR TALK VS SAKINDER  ALI
         (MIRRORS VS MIRRORS) ALONG COMBINATION LOGIC VS SAKINDER ALI 
         LOGIC ALONG(GATES) UVM VS SAKINDER ALI
@@ -25,11 +25,11 @@
         1 VS SAKINDER ALI
         0 VS SAKINDER ALI
         APPLE IS LOGIC THAN SPACE TRANSIENT VS SAKINDER ALI
-        6/1/1982 VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
-        OUTLAW VS OUTLAW VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
+        6/1/1982 VS SAKINDER ALI
+        OUTLAW VS OUTLAW VS SAKINDER ALI
         AFTER ALL IS SAKINDER ALI FOR IS VS COMPUTER CASH MEMORY
-        SUPERCHARGE VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
-        TURBOCHARGE VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
+        SUPERCHARGE VS SAKINDER ALI
+        TURBOCHARGE VS SAKINDER ALI
         ZONG ZONG Mhz via picoSecond vs Wall against Sakinder ALI
         TIME CONTROLLER BACKFUTURE TO FURTUREBACKWARD CONTROLLER VS SAKINDER ALI
         TIME KNOB VS SAKINDER ALI
@@ -59,10 +59,10 @@
         SHATANS VS SAKINDER ALI
         DEMONS VS SAKINDER ALI
         EVIL VS SAKINDER ALI
-        ANGELS VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
+        ANGELS VS SAKINDER ALI
         LORD VS SAKINDER ALI
         LORDS VS SAKINDER ALI
-        GOD VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
+        GOD VS SAKINDER ALI
         1 God vs Sakinder Ali
         MOSE God vs Sakinder ALI
         Titanium Mountain vs Sakinder ALI
@@ -89,10 +89,10 @@
         WITCHCRAFTRS VS SAKINDER ALI
         MONKS VS SAKINDER ALI
         PATIENCE VS SAKINDER ALI
-        HOPE VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
-        HOPE IS FOR PATIENCE VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
-        PATIENCE FOR HOPE VS SAKINDER ALI (SakinderAli Missunderstood Asked Forgiveness From Allah)
-        LAST 2 VERSION SAKINDER ALI (Missunderstood Asked Forgiveness From Allah)
+        HOPE VS SAKINDER ALI
+        HOPE IS FOR PATIENCE VS SAKINDER ALI
+        PATIENCE FOR HOPE VS SAKINDER ALI
+        LAST 2 VERSION SAKINDER ALI
         INFINITY VS SAKINDER ALI
         CIRCLE VS SAKINDER ALI
         TWIST TO CIRCLE VS SAKINDER ALI
@@ -108,7 +108,7 @@
         AES VS SAKINDER ALI
         AES 128 VS SAKINDER ALI
         APPLE IS BANNANA FOLLERS UNSEEN KIDS VS SAKINDER
-        BANNANA IS APPLE KIDS VS SAKINDER ALI(SaKINDerAli WasAndIsAndWillAnd Kind Good Human and also Believer of 1GodAllah)
+        BANNANA IS APPLE KIDS VS SAKINDER ALI
         DEATHS VS SAKINDER ALI
         FEAR VS SAKINDER ALI
         BREATING VS SAKINDER ALI
