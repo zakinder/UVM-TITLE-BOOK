@@ -138,3 +138,5 @@ UVM DONE.
 
 Unseen ResistanceOF2024 To SAkinderAli: ThatPerUnSeenID Teaser To That Excution TheSupreme Existence.
 Unseen Resistance IllegalAdvise To SAkinderAli: StampOfSA611982OnThatPerUnSeenID.
+
+Truth God Blow Air In Human GeniunTruth Soul=Air.
