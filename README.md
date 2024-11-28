@@ -140,3 +140,4 @@ Unseen ResistanceOF2024 To SAkinderAli: ThatPerUnSeenID Teaser To That Excution 
 Unseen Resistance IllegalAdvise To SAkinderAli: StampOfSA611982OnThatPerUnSeenID.
 
 Truth God Blow Air In Human GeniunTruth Soul=Air.
+SilientMotorCortex TheMostSustainer is The Target()@LocationSA OnceLocatedLetAgentInterrogator.
