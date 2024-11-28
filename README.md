@@ -141,3 +141,5 @@ Unseen Resistance IllegalAdvise To SAkinderAli: StampOfSA611982OnThatPerUnSeenID
 
 Truth God Blow Air In Human GeniunTruth Soul=Air.
 SilientMotorCortex TheMostSustainer is The Target()@LocationSA OnceLocatedLetAgentInterrogator.
+
+https://github.com/zakinder/SACollectionOfUnseenForcedForgiveOnMe No Mercy Giving HumanSA611982 SINCE 6 DAYS CREATED EARTH 1+9=10 8+2=10
