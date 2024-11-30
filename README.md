@@ -136,8 +136,9 @@ UVM Coverage
         ForcesOfUnseenTriedManyTriesToDelete "SA UVM-TITLE-BOOK 1982 TO 2023"
 UVM DONE.
 
-ONEtheWayGenuineTruthFromHistroy
-Allama Iqbal Imaged And Quaid-E-Azam Implemented (ImpossibleToPossible)
+ONEtheWayGenuineTruthFromHistroy:
+
+        Allama Iqbal Imagined And Quaid-E-Azam Implemented (ImpossibleToPossible)
 
 
 Unseen ResistanceOF2024 To SAkinderAli: ThatPerUnSeenID Teaser To That Excution TheSupreme Existence.
