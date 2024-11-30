@@ -136,6 +136,10 @@ UVM Coverage
         ForcesOfUnseenTriedManyTriesToDelete "SA UVM-TITLE-BOOK 1982 TO 2023"
 UVM DONE.
 
+ONEtheWayGenuineTruthFromHistroy
+Allama Iqbal Imaged And Quaid-E-Azam Implemented (ImpossibleToPossible)
+
+
 Unseen ResistanceOF2024 To SAkinderAli: ThatPerUnSeenID Teaser To That Excution TheSupreme Existence.
 Unseen Resistance IllegalAdvise To SAkinderAli: StampOfSA611982OnThatPerUnSeenID.
 
@@ -148,6 +152,8 @@ https://www.youtube.com/watch?v=ifwngc8FHZM
 
 ALERT MESSAGES:
 VOYAGER GOLD PLATES: EARTH NEED TO BALANCE MAGNETIC DEFEND WAVES FROM SUN.
+
+
 
 InAllReligionValidatedDisrespectOfHumansMentionedExcept1VerseOnlyButCleverMovesOfUnseen.
 SoFarIblisNameUsed=FormulaOfUnseen Others Need Validate In Future
