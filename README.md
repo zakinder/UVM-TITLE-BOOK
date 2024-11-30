@@ -138,7 +138,8 @@ UVM DONE.
 
 ONEtheWayGenuineTruthFromHistroy:
 
-        Allama Iqbal Imagined And Quaid-E-Azam Implemented (ImpossibleToPossible)
+        [Allama Iqbal Imagined]. [Quaid-E-Azam Implemented]. [ImpossibleToPossible].
+        [Noah Most Sustainer For 950 Years]. [Noah To His People From Begin Allah That Wrongdoers To Rightdoers].
 
 
 Unseen ResistanceOF2024 To SAkinderAli: ThatPerUnSeenID Teaser To That Excution TheSupreme Existence.
