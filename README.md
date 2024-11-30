@@ -148,3 +148,5 @@ https://www.youtube.com/watch?v=ifwngc8FHZM
 
 ALERT MESSAGES:
 VOYAGER GOLD PLATES: EARTH NEED TO BALANCE MAGNETIC DEFEND WAVES FROM SUN.
+
+InAllReligionValidatedDisrespectOfHumansMentionedExcept1VerseOnlyButCleverMovesOfUnseen.
