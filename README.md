@@ -155,3 +155,4 @@ SoFarIblisNameUsed=FormulaOfUnseen Others Need Validate In Future
 Human Birth simulation when Human die partition of simulation
 Basically Unseen No Emotion or feeling of human since unseen understood thats how humans are for partition to rule by unseen
 Therefore Humans findOut and decode from what collection for who and why and what story
+By the way sine wave hidden piano manchester encoder and decoder video mpeg(real truth exist)
