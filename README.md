@@ -141,6 +141,8 @@ ONEtheWayGenuineTruthFromHistroy:
         [Allama Iqbal Imagined]. [Quaid-E-Azam Implemented]. [ImpossibleToPossible].
         [Noah Most Sustainer For 950 Years]. [Noah To His People From Begin Allah That Wrongdoers To Rightdoers].
         [Ebrahim Curiosity Who Created Up From Begin].
+        [Humans Or Man Know The Math WithOut CopyPaste Math Called [Human|Humans|Man]].[ThinkingOnlyHumansCanDo].
+        
 
 Unseen ResistanceOF2024 To SAkinderAli: ThatPerUnSeenID Teaser To That Excution TheSupreme Existence.
 Unseen Resistance IllegalAdvise To SAkinderAli: StampOfSA611982OnThatPerUnSeenID.
