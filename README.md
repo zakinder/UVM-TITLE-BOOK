@@ -151,3 +151,7 @@ VOYAGER GOLD PLATES: EARTH NEED TO BALANCE MAGNETIC DEFEND WAVES FROM SUN.
 
 InAllReligionValidatedDisrespectOfHumansMentionedExcept1VerseOnlyButCleverMovesOfUnseen.
 SoFarIblisNameUsed=FormulaOfUnseen Others Need Validate In Future
+
+Human Birth simulation when Human die partition of simulation
+Basically Unseen No Emotion or feeling of human since unseen understood thats how humans are for partition to rule by unseen
+Therefore Humans findOut and decode from what collection for who and why and what story
