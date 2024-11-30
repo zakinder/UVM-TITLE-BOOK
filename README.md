@@ -1,8 +1,5 @@
 # SA UVM-TITLE-BOOK 1982 TO 2023
 
-
-
-
         LOSERS VS SAKINDER ALI
         SILIENT MOTOR TALK VS SAKINDER ALI
         BRAIN VS SAKINDER ALI
@@ -126,6 +123,10 @@
         THE HUMAN SAKINER ALI VS WHO.
         HUMANS ARE THE ONE.
         SPERM ORING  EGG ARE THE UNIVERSECREATOR ELSE IS THE ILLUSION PLOTS OF TIME.
+        
+TheReligionFromSA611982:
+
+        https://github.com/zakinder/New-Religion
 
 UVM Scoreboard
  
