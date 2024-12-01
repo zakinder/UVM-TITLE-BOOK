@@ -124,7 +124,7 @@
         HUMANS ARE THE ONE.
         SPERM ORING  EGG ARE THE UNIVERSECREATOR ELSE IS THE ILLUSION PLOTS OF TIME.
         
-TheReligionFromAdumAdamSA611982:
+TheReligionFromAdumAdamHumanSA611982:
 
         ButAlwaysRememberTheKeyVisionOfRespectAndTheKeyOfBeingHumbleAndPrivilegeKaaba
         https://github.com/zakinder/New-Religion
