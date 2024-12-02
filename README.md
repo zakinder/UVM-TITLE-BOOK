@@ -195,3 +195,5 @@ Validated:
         Jewish And Hinduism Done Exept Krishna and BigSmall Or G Or Gs or gs Final After SA611982HuMan From Earth At PrivateLevel. In UnseenTheMostHistroyOne GoesWith SA611982HuMan But Unable To Locate AllKnowerOfAll.
 
 ByTheWaySay SA611982 SALAM Where "L" ALsoMeanHeartSide From ##Kind
+pleasure meaning Please ForGive Right Not Until Change Humans TheMeaning To Please ForGive Right But Also WithThat NextCheck Single Glitch No FilterAnyMore
+SimplyTagThatWordInAllHumansNotToSay[OnWardsForbiddenWord[Pleasure]]
