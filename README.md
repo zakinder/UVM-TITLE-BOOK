@@ -254,3 +254,4 @@ Its GeniunTruthWindowSequence "By The Way Its True".
         Surah Al-Hijr (15:14-15)
         "And [Even] If We Opened To Them A Gate From The Heaven And They Continued ...'"
         
+FullyLoadedFromADumAncestor SA611982
