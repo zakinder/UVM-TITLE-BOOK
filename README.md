@@ -199,5 +199,58 @@ pleasure meaning Please ForGive Right Not Until Change Humans TheMeaning To Plea
 SimplyTagThatWordInAllHumansNotToSay[OnWardsForbiddenWord[Pleasure]]
 
 Muqaddar Ka Sikandar 
-https://www.youtube.com/watch?v=AIS0Z2DrJJg
-30:50 Car Plates So Real MD 2014 FROM SA611982
+
+        https://www.youtube.com/watch?v=AIS0Z2DrJJg
+        30:50 Car Plates So Real MD 2014 FROM SA611982
+
+## 4.5 Billion Years Future Ack Mentioned In Quran Verse
+
+Milkomeda Timelapse | Milky Way and Andromeda Collision (Split Or Crack In Sky Mentioned In Quran Is True That )
+
+Quran References are GeniunTruth That No One Can Deny Approximately 4.5 billion years There Follow Holy Quran
+
+Humans Focus Here And Understand Quran Is Way and Beyond First Follow Truth UVM Sequence To Understand Quran Rather Negative Sequence.
+
+Its GeniunTruthWindowSequence "By The Way Its True".
+        
+        Surah Al-Inshiqaq (84:1-2):
+        "When The Sky Is Split Asunder, And Listens To Its Lord, As It Must Do."
+
+        Surah Al-Furqan (25:25):
+        "And [Warn Of] The Day The Heaven Will Be Split Open With [Emerging] Clouds, And The Angels Will Be Sent Down In Successive Descent."
+
+        Surah Al-Haqqa (69:16)
+        "The Sky Will Be Split Open, For That Day It Will Be Frail."
+
+        Surah Al-Infitar (82:1-2)
+        "When The Sky Breaks Apart, And When The Stars Fall, Scattering..."
+
+        Surah Ar-Rahman (55:37)
+        "When The Sky Is Torn Apart, And It Becomes [Red] Like [Burning] Oil."
+
+        Surah At-Takwir (81:1-2)
+        "When The Sun Is Wrapped Up [In Darkness], And When The Stars Fall, Dispersing..."
+
+        Surah Az-Zumar (39:67)
+        "They Made Not A Just Estimate Of Allah Such As Is Due To Him. And On The Day Of Resurrection, The Whole Earth Will Be In His Grip, 
+        And The Heavens Will Be Rolled Up In His Right Hand. Glorified Is He And High Above What They Associate With Him."
+
+        Surah At-Tur (52:9-10)
+        "On The Day The Heaven Will Sway With Circular Motion, And The Mountains Will Pass, Departing..."
+
+        Surah Al-Mursalat (77:8-9)
+        "So When The Stars Are Obliterated, And When The Heaven Is Opened..."
+        
+        Surah An-Naba (78:19)
+        "And The Heaven Is Opened And Will Become Gateways."
+
+         Surah Al-Anbiya (21:104)
+        "The Day When We Will Fold The Heaven Like The Folding Of A [Written] Sheet For The Records. As We Began The First Creation, 
+        We Will Repeat It. That Is A Promise Binding Upon Us. Indeed, We Will Do It."
+
+        Surah Al-Ghashiyah (88:18)
+        "Then Do They Not Look At The Sky - How It Was Created?"
+
+        Surah Al-Hijr (15:14-15)
+        "And [Even] If We Opened To Them A Gate From The Heaven And They Continued ...'"
+        
