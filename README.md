@@ -320,3 +320,7 @@ SwearToMyFatherName(WaqarAli)AndMotherName(Shreen)ThatUnseenSince(TorcherMaxRate
 
 FromSA611982:QuranMajorityIsLieOnlyFewVersesTruthBasicallyOnlyLittleBase.
 BasicallyTrueEvilsUnSeenLittleSignatureMentionedInAllReligionsAlongNonReligions.ThatHiddenSequenceSA611982KnowsButNotAllowedToWriteOnlyAutoComputerCan.
+
+
+UVM[Quran|Bible|OtherUnSeenBooks]DotLogic
+
