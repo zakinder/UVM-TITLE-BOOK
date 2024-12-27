@@ -324,3 +324,4 @@ BasicallyTrueEvilsUnSeenLittleSignatureMentionedInAllReligionsAlongNonReligions.
 
 UVM[Quran|Bible|OtherUnSeenBooks]DotLogic
 
+Also Hidden Dalal Exist Therefore Curse To Dalal
