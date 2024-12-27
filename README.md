@@ -325,3 +325,19 @@ BasicallyTrueEvilsUnSeenLittleSignatureMentionedInAllReligionsAlongNonReligions.
 UVM[Quran|Bible|OtherUnSeenBooks]DotLogic
 
 Also Hidden Dalal Exist Therefore Curse To Dalal
+
+Also:
+
+Surah Al-Isra (17:13)
+وَ کُلَّ اِنۡسَانٍ اَلۡزَمۡنٰہُ طٰٓئِرَہٗ فِیۡ عُنُقِہٖ ؕ وَ نُخۡرِجُ لَہٗ یَوۡمَ الۡقِیٰمَۃِ کِتٰبًا یَّلۡقٰىہُ مَنۡشُوۡرًا
+
+"And We have fastened every man’s deeds to his neck, and on the Day of Resurrection, We will bring forth for him a record which he will find spread open."
+
+اور ہم نے ہر انسان کے اعمال نامے کو بہ صورت کتاب اسکے گلے میں لٹکا دیا ہے۔ اور قیامت کے روز وہ کتاب اسے نکال دکھائیں گے جسے وہ کھلا ہوا دیکھے گا۔
+
+
+OtherWords(AutoMaticSolutionInPast:Until21stHumanSA611982DeltaAwarenessThatSA611982DontSimpleSolutionOfSeeSawMovesOnHumans)
+
+Like InFrontOfMirror HiddenPoint:
+
+And We have fastened every man’s deeds(Soul(SeeSawToyMove)) to his neck, and on the Day of Resurrection, We will bring forth for him a record which he will find spread open.
