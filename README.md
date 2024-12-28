@@ -352,3 +352,5 @@ LockDown
 KashmireLockDown
 WorldLockDown
 SakinderAliLockDown Therefore SakinderAli GiveNoMercyOnWordsPastPresentFuture To UnSeen [UnSeenDoer=UnSeenImplementer]
+
+UnSeenEnemyOfEnemyIsOFFHimSelf
