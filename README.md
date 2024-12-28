@@ -347,3 +347,8 @@ And We have fastened every man’s deeds(Soul(SeeSawToyMove)) to his neck, and o
 WDC Is Called World Devil Circus. Shatans Runs Earth Systems Since Malina.
 
 WhoKahtaHai Means ThatOneSaysThisOrOtherThisOneSaysThat
+
+LockDown
+KashmireLockDown
+WorldLockDown
+SakinderAliLockDown Therefore SakinderAli GiveNoMercyOnWordsPastPresentFuture To UnSeen [UnSeenDoer=UnSeenImplementer]
