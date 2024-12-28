@@ -343,3 +343,5 @@ Like InFrontOfMirror HiddenPoint:
 And We have fastened every man’s deeds(Soul(SeeSawToyMove)) to his neck, and on the Day of Resurrection, We will bring forth for him a record which he will find spread open.
 
 2WaysButTillDaySuchThat2HumansPerHiddenAreInSideOutNonHiddenOutSideVersionSinceAdam
+
+WDC Is Called World Devil Circus. Shatans Runs Earth Systems Since Malina.
