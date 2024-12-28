@@ -345,3 +345,5 @@ And We have fastened every man’s deeds(Soul(SeeSawToyMove)) to his neck, and o
 2WaysButTillDaySuchThat2HumansPerHiddenAreInSideOutNonHiddenOutSideVersionSinceAdam
 
 WDC Is Called World Devil Circus. Shatans Runs Earth Systems Since Malina.
+
+WhoKahtaHai Means ThatOneSaysThisOrOtherThisOneSaysThat
