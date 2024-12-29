@@ -134,6 +134,8 @@ FakeOrActorOrCheap Shatan Trash Results
 JealousyOfUnSeenWantsUtilizeThisHuman2024TimeVsCheapShatans
 Did Not Work And Also WastedTime ForNoReasons Such Truly Exist In UnSeen Cheap And Illegal UnSeen Existance
 2024PossedByCheapUnSeen
+OtherThanCheapShatansWhichAlreadyObviousToSA611982 OutSiders If Deceived(Betrayer) DotMatriXYSA611982 Punishment Is NoMercyUnSeenExecution
+
 
 TheReligionFromAdumAdamHumanSA611982:
 
