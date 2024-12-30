@@ -363,3 +363,5 @@ WorldLockDown
 SakinderAliLockDown Therefore SakinderAli GiveNoMercyOnWordsPastPresentFuture To UnSeen [UnSeenDoer=UnSeenImplementer]
 
 UnSeenEnemyOfEnemyIsOFFHimSelf
+
+UnSEEN ENTERED SINCE 2003 SAKINDER ALI WILL BE PUNISHED FOREVER
