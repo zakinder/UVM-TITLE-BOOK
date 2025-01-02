@@ -131,4 +131,5 @@
 UVM DONE UNTIL 2023.
 
 2024:
-Shatans Of During 2024 left small evil scopian types. Trash from begin big bang universe left overs trash. In Other words illegal existance sometime in future eliminated with proper way once for all.
+
+2024 Shatans = small evil scopian types got introduced in January of 2024. Trash from begin big bang universe. In Other words illegal existance sometime in future will be eliminated with proper way once for all.
