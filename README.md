@@ -146,6 +146,10 @@ ON PURPOSE WHO KILL ANY EXISTANCE WITH PURPOSE WILL BE GIVEN UVM LEVEL PUNISHMEN
 
 STATUS:
 
+VALID PROOF:
+
+https://github.com/zakinder/Sakinder-Ali/blob/main/Validated%20Proof%20Iblis%20Got%20Caught.pdf
+
 DEEPFREEZE JINNS
 
         Stored Humans Insideout_Workships_Pray Into Rings Just For Respect What They Do Next Big Bang Universe.
