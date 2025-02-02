@@ -156,4 +156,4 @@ DEEPFREEZE JINNS
         Only Human Ibrahim After Begin Of Big Bang Universe.
 
 ANY UNSEEN PURPOSE WHO KILL ANY EXISTANCE WITH PURPOSE WILL BE GIVEN UVM LEVEL PUNISHMENTS SUCH THAT AFTER PUNISHMENT WILL NOT REMEMBER WHAT HAPPENED.
-Static Hinduism Punishment By Their Own Existance.
+Static Hinduism Punishment By Their Own Existance. And No Mercy For Hinduism.
