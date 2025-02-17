@@ -158,4 +158,5 @@ DEEPFREEZE JINNS
 ANY UNSEEN PURPOSE WHO KILL ANY EXISTANCE WITH PURPOSE WILL BE GIVEN UVM LEVEL PUNISHMENTS SUCH THAT AFTER PUNISHMENT WILL NOT REMEMBER WHAT HAPPENED.
 Static Hinduism Punishment By Their Own Existance. And No Mercy For Hinduism.
 
-Sacrifice means unseen jokers fake acts to joke around since the concept was invented of word sacrifice.
+Sacrifice means UnSeen(NotSoulsNotSpirits) jokers fake acts to joke around since the concept was invented of word sacrifice.
+Sacrifice Means Joke.
