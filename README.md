@@ -161,3 +161,5 @@ Static Hinduism Punishment By Their Own Existance. And No Mercy For Hinduism.
 =shatanshatan=iblis
 Sacrifice means UnSeen(NotSoulsNotSpirits) jokers fake acts to joke around since the concept was invented of word sacrifice.
 Sacrifice Means Joke.
+
+UNSEENS TOUCH SAKINDER ALI PHYSICS OR FORCE OR SOUL OR SOURCE SET FOR FINISHED AT PERMANENT RATE.
