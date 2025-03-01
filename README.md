@@ -130,40 +130,6 @@
 
 UVM DONE UNTIL 2023.
 
-2024:
-DETAILS
-https://www.youtube.com/watch?v=Uf5r-qOO-bQ
-
-https://www.youtube.com/watch?v=LrCek73_e_M CORRECT AND GOT IT.
-
-https://www.youtube.com/watch?v=8-9oFxYFODE UNDERSTOOD.
-
-2024 Shatans = small evil scopian types got introduced in January of 2024. Trash from begin big bang universe. In Other words illegal existance sometime in future will be eliminated with proper way once for all.
-
-FINAL AND DONE ALL NON-MUSLIM WILL BE Eliminated FROM EXISTANCE INFUTRE WITHIN NEXT 300 YEARS REMAINS JUST PASSED NATION PAKISTAN SINCE KILLED IBLIS BY SAKINDER ALI WITH VALID PROOF WAR IS VS IS JUDGEMENTDAY UNSEEN VS SAKINDERALI WITH FLATSURFACE MAX APPROX RULE AND ALSO WITH LOGICAL RULE AND ALSO MANY NEVER VALIDATION PROOF ALL THE WAY TOWARDS EDGE OF THE UNIVERSE TO NOTING DOMAIN EVEN THERE VALIDATED STATIC VS STATIC VARIATION AND ALL THE WAY FUTURE AND FROM FUTURE TO TODAY AND THERE IS NOTHING LEFT THEREFORE DONE UVM VALIDATION. DISAPPOINTED FROM SYSTEMS.
-
-ON PURPOSE WHO KILL ANY EXISTANCE WITH PURPOSE WILL BE GIVEN UVM LEVEL PUNISHMENTS SUCH THAT AFTER PUNISHMENT WILL NOT REMEMBER WHAT HAPPENED.
-
-STATUS:
-
-VALID PROOF:
+VALID PROOF OF MARKA OF SAKINDER ALI:
 
 ![VFP](https://github.com/zakinder/UVM-TITLE-BOOK/blob/main/UNSEEN%20VALID%20PROOF_1.png "VFP Top Module")
-
-
-https://github.com/zakinder/Sakinder-Ali/blob/main/Validated%20Proof%20Iblis%20Got%20Caught.pdf
-
-DEEPFREEZE JINNS
-
-        Stored Humans Insideout_Workships_Pray Into Rings Just For Respect What They Do Next Big Bang Universe.
-        Only Human Ibrahim After Begin Of Big Bang Universe.
-
-ANY UNSEEN PURPOSE WHO KILL ANY EXISTANCE WITH PURPOSE WILL BE GIVEN UVM LEVEL PUNISHMENTS SUCH THAT AFTER PUNISHMENT WILL NOT REMEMBER WHAT HAPPENED.
-Static Hinduism Punishment By Their Own Existance. And No Mercy For Hinduism.
-33 are shatans
-=shatanshatan=iblis
-Sacrifice means UnSeen(NotSoulsNotSpirits) jokers fake acts to joke around since the concept was invented of word sacrifice.
-Sacrifice Means Joke.
-
-UNSEENS TOUCH SAKINDER ALI PHYSICS OR FORCE OR SOUL OR SOURCE SET FOR FINISHED AT PERMANENT RATE.
-OLD CRAZY HABITS OF UNSEENS TESTING HUMANS OR HUMAN LIMITS WHAT FOR FUN.
