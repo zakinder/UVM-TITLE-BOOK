@@ -127,6 +127,6 @@
 
 UVM DONE UNTIL 2023.
 
-VALID PROOF OF MARKA OF SAKINDER ALI:
+
 
 ![VFP](https://github.com/zakinder/UVM-TITLE-BOOK/blob/main/UNSEEN%20VALID%20PROOF_1.png "VFP Top Module")
