@@ -123,10 +123,7 @@
         THE HUMAN SAKINER ALI VS WHO.
         HUMANS ARE THE ONE.
         SPERM ORING  EGG ARE THE UNIVERSECREATOR ELSE IS THE ILLUSION PLOTS OF TIME.
-        SaTAN VS SAKINDERALI <--- Hidden Marka
-        ShAitan VS SAKINDERALI <--- Hidden Marka
-        ShAytan VS SAKINDERALI <--- Hidden Marka
-        Shayatin VS SAKINDERALI <--- Hidden Marka
+
 
 UVM DONE UNTIL 2023.
 
